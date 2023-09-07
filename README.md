@@ -29,9 +29,9 @@ Os clientes têm o direito de acessar, corrigir ou excluir suas informações pe
 7. Alterações na Política de Privacidade
 Esta Política de Privacidade pode ser atualizada periodicamente. Recomendamos que os clientes revisem regularmente esta política para se manterem informados sobre como suas informações pessoais são protegidas e utilizadas.
 Esta política foi atualizada em 09/09/2023.
-Whatsapp 933685394
-Luanda Angola
-933685394
+\nWhatsapp 933685394
+\nLuanda Angola
+\n 933685394\n
 alexandrelisboa845@gmail.com
 
 
