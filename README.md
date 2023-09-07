@@ -28,8 +28,11 @@ O site/aplicativo da Empresa pode utilizar cookies e tecnologias de rastreamento
 Os clientes têm o direito de acessar, corrigir ou excluir suas informações pessoais a qualquer momento. Também podem optar por não receber comunicações de marketing da Empresa. Para exercer esses direitos ou para qualquer dúvida relacionada à privacidade, os clientes podem entrar em contato conosco através dos canais de comunicação especificados na seção de "Política de Comunicação".
 7. Alterações na Política de Privacidade
 Esta Política de Privacidade pode ser atualizada periodicamente. Recomendamos que os clientes revisem regularmente esta política para se manterem informados sobre como suas informações pessoais são protegidas e utilizadas.
-Esta política foi atualizada em [data de atualização].
-[Contato da Empresa] [Endereço] [Telefone] [E-mail] [Website]
+Esta política foi atualizada em 09/09/2023.
+Whatsapp 933685394
+Luanda Angola
+933685394
+alexandrelisboa845@gmail.com
 
 
 
